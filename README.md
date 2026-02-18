@@ -29,4 +29,5 @@ Sou estudante de Técnico em Segurança do Trabalho com experiência prática na
 
 ## 📞 Contato
 LinkedIn: www.linkedin.com/in/leonardo-de-paula-navarro
+
 Email: leo.hand90@gmail.com
